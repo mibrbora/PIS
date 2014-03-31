@@ -5,4 +5,4 @@ Vježba 3, PIS
 
 Vje�ba 3 - rad s distribuiranim sustavima
 
-IvanBizaca dodaje liniju
+Hey bro, and by bro i mean never my bro, fucking fegit
