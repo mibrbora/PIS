@@ -3,4 +3,6 @@ PIS
 
 VjeÅ¾ba 3, PIS
 
-Vježba 3 - rad s distribuiranim sustavima
+Vjeï¿½ba 3 - rad s distribuiranim sustavima
+
+IvanBizaca dodaje liniju
